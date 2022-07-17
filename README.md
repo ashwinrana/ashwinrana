@@ -22,7 +22,7 @@ Hi there, I'm **BoBo**, a **Web Developer**  🚀 from Nepal. [@ashwinrana](http
 
 **Talking about Personal Stuffs:**
 
-- 👨🏽‍💻 I’m currently an Software Engineer;
+- 👨🏽‍💻 I’m currently working as an Software Engineer;
 - 💼 MBA pursuant;
 - 💬 Ask me about anything, I am happy to help;
 - 📫 How to reach me: mail me at ashwinrana10@gmail.com to reach me.
